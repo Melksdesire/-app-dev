@@ -16,4 +16,4 @@
 - Truman Show
 - Oppenheimer
 - Avengers: Girl Boy Bakla Tomboy
-
+![Tux, the Linux mascot](/assets/images/tux.png)
