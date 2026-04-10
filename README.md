@@ -1,6 +1,6 @@
-# Favourite Series 
+# **Favourite Series**
 
-## Anime 
+## --Anime--
 
 - One Piece
   > THE GOATTTT
@@ -16,4 +16,4 @@
 - Truman Show
 - Oppenheimer
 - Avengers: Girl Boy Bakla Tomboy
-![Tux, the Linux mascot](/assets/images/tux.png)
+
