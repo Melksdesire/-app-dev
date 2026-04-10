@@ -2,28 +2,28 @@
 Below are my favourite shows ==(based solely on my opinion)==.
 ## --Anime--
 
-- One Piece
+- One Piece 🏴‍☠️
   > THE **GOATTTT**
 ### Notable Moments
 | Arc      | Episode |
 | ----------- | ----------- |
-| Enies Lobby| 278    |
-| Drum Island  | 86      |
-| Zou |767     |
+| Enies Lobby 🐐| 278    |
+| Drum Island ❄️  | 86      |
+| Zou 🐘 |767     |
 
 - Frieren
 - Violet Evergarden
   > One of the most unique films ever :sob:
-- That time I reincarnated as a slime
+- That time I reincarnated as a slime 
+- ~~Overflow~~
 
 ## Movie
 
 - Interstellar
-  > Perfect.
+  > Perfect. 👽
 - Truman Show
 - Oppenheimer
   > E=mc<sup>2</sup> multiplied by H<sub>2</sub>O type shi
-- Avengers Movies
-  -
+- Avengers: ~~Girl Boy Bakla Tomboy~~ Endgame
 
 
