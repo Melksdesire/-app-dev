@@ -1,5 +1,5 @@
 # Favourite Series
-
+Below are my favourite shows ==(based solely on my opinion)==.
 ## --Anime--
 
 - One Piece
@@ -13,7 +13,7 @@
 
 - Frieren
 - Violet Evergarden
-  > One of the most unique films ever
+  > One of the most unique films ever :sob:
 - That time I reincarnated as a slime
 
 ## Movie
@@ -22,6 +22,8 @@
   > Perfect.
 - Truman Show
 - Oppenheimer
-- Avengers: Girl Boy Bakla Tomboy
+  > E=mc^2^ type shi
+- Avengers Movies
+  -
 
 
