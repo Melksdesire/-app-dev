@@ -1,9 +1,9 @@
-# **Favourite Series**
+# Favourite Series
 
 ## --Anime--
 
 - One Piece
-  > THE GOATTTT
+  > THE **GOATTTT**
 - Frieren
 - Violet Evergarden
   > One of the most unique films ever
