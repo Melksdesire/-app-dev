@@ -1,5 +1,5 @@
 # Favourite Series
-Below are my favourite shows ==based solely on my opinion==.
+Below are my favourite shows <mark>(based solely on my opinion)<mark>.
 ## --Anime--
 
 - One Piece 🏴‍☠️
