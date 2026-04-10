@@ -22,8 +22,11 @@ Below are my favourite shows ==(based solely on my opinion)==.
 - Interstellar
   > Perfect. 👽
 - Truman Show
+  > Goodafternoon,
+  >
+  > >Goodevening
 - Oppenheimer
-  > E=mc<sup>2</sup> multiplied by H<sub>2</sub>O type shi
+  > E=mc<sup>2</sup> multiplied by H<sub>2</sub>O movie type shi
 - Avengers: ~~Girl Boy Bakla Tomboy~~ Endgame
 
 
