@@ -4,6 +4,12 @@
 
 - One Piece
   > THE **GOATTTT**
+| Arc      | Episode |
+| ----------- | ----------- |
+| Enies Lobby| 278    |
+| Drum Island  | 86      |
+| Zou |767     |
+
 - Frieren
 - Violet Evergarden
   > One of the most unique films ever
@@ -17,4 +23,4 @@
 - Oppenheimer
 - Avengers: Girl Boy Bakla Tomboy
 
-![The San Juan Mountains are beautiful](https://www.tumblr.com/dianux-27/713268918932865024/whats-luffy-drawing-bonus-luzo-kiss)
+[
