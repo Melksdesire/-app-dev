@@ -1,4 +1,4 @@
-# Favourite Series
+# Zanjoe's Favourite Series
 Below are my favourite shows <mark>(based solely on my opinion)<mark>.
 ## --Anime--
 
@@ -30,5 +30,11 @@ Below are my favourite shows <mark>(based solely on my opinion)<mark>.
 - Oppenheimer
   > E=mc<sup>2</sup> multiplied by H<sub>2</sub>O movie type shi
 - Avengers: ~~Girl Boy Bakla Tomboy~~ Endgame
+
+
+**If you're in the mood to watch a movie, Consider my favourites. They are all:**
+- [x] One of a kind
+- [x] Diabolically Emotional
+- [x] ABSOLUTE CINEMA!!
 
 
