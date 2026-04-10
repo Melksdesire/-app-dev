@@ -22,7 +22,7 @@ Below are my favourite shows ==(based solely on my opinion)==.
   > Perfect.
 - Truman Show
 - Oppenheimer
-  > E=mc^2^ type shi
+  > E=mc<sup>2</sup> type shi
 - Avengers Movies
   -
 
